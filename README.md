@@ -1,0 +1,2 @@
+# jashar
+min portfolio sida
